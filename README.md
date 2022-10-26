@@ -1,13 +1,10 @@
-# Boiling Water with Magnets
+# Boiling Water with Magnets, and Other True Stories
 
-## Tutorial
+## [Boiling Water With Magnets](https://www.youtube.com/watch?v=Ua6brgZha-4)
 
-https://www.youtube.com/watch?v=Ua6brgZha-4
+## [Many Youtube Videos, can be handcranked](https://www.youtube.com/results?search_query=boil+water+magnets)
 
-Many Youtube Videos, can be handcranked. 
+## [Giant Sand Battery](https://www.youtube.com/watch?v=p9PZ9Mykv4o)
 
-https://www.youtube.com/results?search_query=boil+water+magnets
+## [DIY Home Heating System](https://www.youtube.com/watch?v=MUWjjjFgXdg)
 
-Giant Sand Battery
-
-https://www.youtube.com/watch?v=p9PZ9Mykv4o
