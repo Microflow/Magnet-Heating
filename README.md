@@ -1,16 +1,16 @@
 # Boiling Water with Magnets, and Other True Stories
 
-## Cast Iron Skillet, Candles and Fire-Bricks
+- Sand doesn't store electricity, it stores heat.  
+- Solar powered salt towers can boil water all night. 
+- A kilo of sand will store heat for 5 hours. 
+
+## [Cast Iron Skillet, Candles and Fire-Bricks](https://www.youtube.com/watch?v=Wc7xm9CBzJ0)
 
 - Both Iron and Firebricks retain heat for hours because they're dense. 
 - Drill the holes at the bottom. 
 - The candles will get it to 100F in two hours. 
 
-https://www.youtube.com/watch?v=Wc7xm9CBzJ0
-
-## DIY Tiny House Heater
-
-https://www.youtube.com/watch?v=eyRzcwGbvwE
+## [DIY Tiny House Heater](https://www.youtube.com/watch?v=eyRzcwGbvwE)
 
 ## [DIY Geothermal Step By Step. Looks Good.](https://www.youtube.com/watch?v=iS4corLQMyY)
 
