@@ -1,6 +1,10 @@
 # Boiling Water with Magnets, and Other True Stories
 
-## Cast Iron Skillet
+## Cast Iron Skillet, Candles and Fire-Bricks
+
+- Both Iron and Firebricks retain heat for hours because they're dense. 
+- Drill the holes at the bottom. 
+- The candles will get it to 100F in two hours. 
 
 https://www.youtube.com/watch?v=Wc7xm9CBzJ0
 
