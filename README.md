@@ -1,5 +1,9 @@
 # Boiling Water with Magnets, and Other True Stories
 
+## Cast Iron Skillet
+
+https://www.youtube.com/watch?v=Wc7xm9CBzJ0
+
 ## [DIY Geothermal Step By Step. Looks Good.](https://www.youtube.com/watch?v=iS4corLQMyY)
 
 - Soils can make or break system.
