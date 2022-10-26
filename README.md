@@ -3,6 +3,9 @@
 ## [DIY Geothermal Step By Step. Looks Good.](https://www.youtube.com/watch?v=iS4corLQMyY)
 
 - Soils can make or break system.
+- Sand retains heat for 5 hours. 
+- Wet sand is better?
+- Moist/Water Saturated soils are much better.  
 
 ## Sand Retains Heat for 5 Hours
 
