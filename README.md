@@ -10,6 +10,10 @@
 - Drill the holes at the bottom. 
 - The candles will get it to 100F in two hours. 
 
+## Molten Salt Can Store Energy for Two Months
+
+https://cleantechnica.com/2012/04/24/interview-molten-salt-storage-is-safe-could-store-heat-for-2-months/
+
 ## [Melting Salt in a Furnace](https://www.youtube.com/watch?v=9QZ5In6P-A4)
 
 - Salt can be heated up to 800 degrees, at least. 
