@@ -10,6 +10,12 @@
 - Drill the holes at the bottom. 
 - The candles will get it to 100F in two hours. 
 
+## [Melting Salt in a Furnace](https://www.youtube.com/watch?v=9QZ5In6P-A4)
+
+- Salt can be heated up to 800 degrees, at least. 
+- Iron is the best material for a pan.
+- WARNING: When mixed with water, the salt can explode.
+
 ## [DIY Tiny House Heater](https://www.youtube.com/watch?v=eyRzcwGbvwE)
 
 ## [Flowerpot Heater](https://www.youtube.com/watch?v=b11dqKJrulk)
